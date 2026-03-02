@@ -1,1 +1,1 @@
-2025 Sung-Hoon HONG anthropology.city
+2026 Sung-Hoon HONG anthropology.city
